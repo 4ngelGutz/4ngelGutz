@@ -4,3 +4,4 @@
 ![shut up](https://wilardo.crd.co/assets/images/gallery31/c928a3ff.png?v=f32c5ae3)
  ———————————————————————————————————
  Shu, Androgynous (he/her prns), ENTJ, I usually int first (I try to int when people are alone), Kms/Kys jokes, Vulgar jokes (if you tell me to stop ill try), Please tell if you use tonetags, Avoid venting to me (im not a very sympathetic person), I try to match peoples humor, Arrogant
+![icecream will fix it](https://gifcity.carrd.co/assets/images/gallery49/ece08772.png?v=52814815)
