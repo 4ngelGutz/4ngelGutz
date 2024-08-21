@@ -6,5 +6,5 @@
 ![image](https://cdn.discordapp.com/attachments/1189324849378775041/1272353356937039882/Untitled466_20240811152408.png?ex=66c5dfa7&is=66c48e27&hm=c7a52bc5a58156c6129c87d9ea31f61a53a360eb95087537ba4a126f77d1a77f&)
 ![shut up](https://wilardo.crd.co/assets/images/gallery31/c928a3ff.png?v=f32c5ae3)
  ———————————————————————————————————
- Shu, Androgynous (he/her prns), ENTJ, I usually int first (I try to int when people are alone), Kms/Kys jokes, Vulgar jokes (if you tell me to stop ill try), Please tell if you use tonetags, Avoid venting to me (im not a very sympathetic person), I try to match peoples humor, Arrogant
+ Shu, Androgynous (he/her prns), ENTJ, I usually int first (I try to int when people are alone), Kms/Kys jokes, Vulgar jokes (if you tell me to stop ill try), Please tell if you use tonetags, Avoid venting to me (im not a very sympathetic person), I try to match peoples humor
 ![icecream will fix it](https://gifcity.carrd.co/assets/images/gallery49/ece08772.png?v=52814815)
